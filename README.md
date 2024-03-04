@@ -1,1 +1,0 @@
-# khullar.github.io
